@@ -32,7 +32,7 @@ Huge hyperfixation on the broken script and the backrooms, loves talking about i
 
 About Vanity / Lilac / Mili :
 
-Our lovely host, unlikely to be seen in front without Flame as they're almost never separate ! Introverted and generally uncomfrontative, makes a lot of innapropriate and kms jokes, doesn't usually int first unless already friends, always open to chat unless he had dni in his name (in ponytown)
+Our lovely host, unlikely to be seen in front without Flame as they're almost never separate ! Introverted and generally unconfrontative, makes a lot of innapropriate and kms jokes, doesn't usually int first unless already friends, always open to chat unless he has dni in his name (in ponytown)
 Enjoys horror games and music, generally on ponytown or roblox !
 
 ***
